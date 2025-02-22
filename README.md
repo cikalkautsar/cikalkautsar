@@ -1,5 +1,5 @@
 # 💫 About Me:
-Ciao! Sono AL 🚀  
+Ciao! Io Sono AL 🚀  
 Uno sviluppatore appassionato che ama creare soluzioni per rendere la vita più semplice e divertente!  
 
 ### 🌟 What I Do:
